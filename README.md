@@ -1,1 +1,1 @@
-# Tecnolias em TI
+# Tecnologias em TI
